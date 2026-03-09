@@ -1,4 +1,4 @@
-# Hi there! I'm Decamsxy 👋
+# Hi there! I'm Decamzzz 👋
 
 ### 🚀 Systems Engineering Student (7th Semester) | Cybersecurity & Data Resilience Enthusiast
 
